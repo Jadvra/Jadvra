@@ -15,3 +15,4 @@ Com um olhar atento aos detalhes e uma paixão por soluções eficientes, busco 
 Happy coding! 🚀
 
 🌐 Conecte-se comigo no LinkedIn, estou sempre aberto a colaborações e trocas de ideias!
+   https://www.linkedin.com/in/jadvra/
